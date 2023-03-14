@@ -1,3 +1,4 @@
-- 👋 Hi, I’m @Veunsia
+- 👋 Hi, I’m @wender
 - 👀 I’m interested in game
 - 📫 Email: wenderw@163.com
+- 🇨🇳 Chinese
